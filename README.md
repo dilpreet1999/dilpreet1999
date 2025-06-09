@@ -34,7 +34,7 @@ Welcome to my GitHub! I’m a developer who enjoys working with full-stack appli
 ---
 
 ### 📫 Connect With Me
-- [LinkedIn](https://www.linkedin.com/in/your-link)
+- [Fiverr](https://www.fiverr.com/sellers/dilpreetsing581/edit)
 - [Twitter](https://twitter.com/dilpreet1999)
 
 ---
